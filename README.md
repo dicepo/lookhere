@@ -1,4 +1,4 @@
-hi i'm doc or isaac. primarily i use he him and i'm not big on labels :) no they please
+hi i'm isaac or mag. primarily i use he him :) no they please
 
 queer in some way, tmasc, and i love my boyfriend. beautiful boy of two years 7.31 lets be yaoi
 
